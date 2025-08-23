@@ -8,10 +8,12 @@ Throughout my career, I have worked on various projects that span multiple indus
 I am always eager to connect, collaborate, and work with individuals, professionals, and organizations that share my passion for data-driven problem-solving innovation.
 
 In Short,
-I'm Doris,
-I'm interested in Data Analytics Projects
-I'm currently a Data Analyst
-I'm looking to collaborate on any Data Analytics and /or Project Management Projects.
-How to reach me via anyanedoris02@gmail.com
-Pronouns: she/her
-Fun fact: cooking and music
+🖐 I'm Doris
+👀 I'm interested in Data Analytics Projects
+🌹 I'm currently a Data Analyst
+💕 I'm looking to collaborate on any Data Analytics and /or Project Management Projects.
+👌 How to reach me via anyanedoris02@gmail.com
+😀 Pronouns: she/her
+😊 Fun fact: cooking and music
+
+
